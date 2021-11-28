@@ -1,2 +1,0 @@
-# Ridhan+Prome
-BEST COUPLE
